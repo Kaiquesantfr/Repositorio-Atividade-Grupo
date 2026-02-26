@@ -1,2 +1,2 @@
 # TEXTO DO BAMBUCHO
-kaique gay
++ kaique gay
